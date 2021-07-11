@@ -1,0 +1,2 @@
+# Iskandar
+man yangi foydalanuvchiman
